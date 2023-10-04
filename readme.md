@@ -14,6 +14,6 @@ Nas tim tvoria clenovia:
 
 1. Kristína Kvasňovská
 2. Ondrej Adam
-3.
+3. Tomáš Korim
 4.
 
